@@ -1,0 +1,1 @@
+[GITHUB MARKETING BOM TEMPLATE - Attach to Exploded diagram - MAVERICKFORCESSPOT (Confirmed).xlsx](https://github.com/user-attachments/files/19607805/GITHUB.MARKETING.BOM.TEMPLATE.-.Attach.to.Exploded.diagram.-.MAVERICKFORCESSPOT.Confirmed.xlsx)
